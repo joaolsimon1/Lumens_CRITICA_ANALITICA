@@ -1,0 +1,1 @@
+# Lumens_CRITICA_ANALITICA
